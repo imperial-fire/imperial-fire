@@ -5,7 +5,7 @@
 <img align="center" height="500" width="300" src="https://files.catbox.moe/1f8z4o.png">
 
   
-꒰ა  ![](https://komarev.com/ghpvc/?username=imperial-fire&color=A059BF&style=plastic&label=Wubes!)  ໒꒱
+꒰ა  ![](https://komarev.com/ghpvc/?username=imperial-fire&color=A059BF&style=plastic&label=little chungies)  ໒꒱
 
 </div>
 
