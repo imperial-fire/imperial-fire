@@ -13,7 +13,7 @@
   
   ${{\color{A059BF}\Large{\textsf{ELIAS⠀⠀or⠀⠀WEMMBU\ \}}}}\$  <br> 
 
-— 🜲 My name is Elias, but I also go by any of my kintype names or whatever skin I have on atm! I use he/any pronouns and am gender apathetic & androgynous, I am whatever you percieve me as and don't have much of a preference. I have been a wemmbu fictkin for 3 years and it is my main kintype :]
+— 🜲 My name is Elias, but I also go by any of my kintype names or whatever skin I have on atm! I use he/any pronouns and am gender apathetic & androgynous, I am whatever you percieve me as and don't have much of a preference. I have been a wemmbu fictkin for 3 years (almost 4 now!!) and it is my main kintype :]
 
 I prefer 15+ interactions because I don't like talking to um. little kids. , but otherwise I enjoy any and all interactions, though I am mostly offtab so be mindful if I dont respond to anything except whispers (In which case, W2I). C+H are fine with me, friend or not!! 
 
