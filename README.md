@@ -17,8 +17,8 @@
 
 FOR PT: I prefer 15+ interactions because I don't like talking to um. little kids. , but otherwise I enjoy any and all interactions, though I am mostly offtab so be mindful if I dont respond to anything except whispers (In which case, W2I). C+H are fine with me, friend or not!! 
 
-I am currently hyperfixated on Unstable Universe, and am also interested in LifestealSMP, Hermitcraft, VampiresSMP, Life series, Color Crew, etc . . .
-
+I am currently hyperfixated on Unstable Universe, and am also interested in LifestealSMP, Hermitcraft, VampiresSMP, Life series, Color Crew, PVPC, etc . . .
+    <p align="center">
 I am in DESPERATE need of SMPS and servers to join. Hit me up.. Ok..?
     <p align="center">
 sign my [ata](https://imperialfire.atabook.org/) pretty please.......?..,,. ill even take hate comments just sign it . thx.
